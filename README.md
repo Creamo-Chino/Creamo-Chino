@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Creamo-Chino
+- 👀 I’m interested in modding and being cute.
+- 🌱 I’m currently learning how to make cute stuff for Minecraft.
+- 💞️ I’m looking to collaborate on nothing at the moment.
+- 📫 How to reach me by using the email on my profile creamo-chino@tuta.io.
+- 😄 Pronouns: Use whatever you feel like.
+- ⚡ Fun fact: Bunnies are very cute and modding can be very fun until you hit a brick wall.
