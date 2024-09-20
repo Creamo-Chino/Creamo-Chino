@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Creamo-Chino
+- 👋 Hi, I’m Kafuu Chino. Feel free to call me Chino!
 - 👀 I’m interested in modding and being cute.
 - 🌱 I’m currently learning how to make cute stuff for Minecraft and other games.
 - 💞️ I’m looking to collaborate on nothing at the moment.
